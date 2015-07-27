@@ -6,6 +6,8 @@ Carlos Daniel Hernández Calderón
 Michelle Mejido Chávez
 Liliana Sánchez Madrid
 75918
+Sánchez Aguilar Diana
+76835
 Life: Online Vs Offline
 In the last few years we have seen the disappearance of habits and family customs. There are more and more applications and sites to meet people on the web from anywhere in the world. A lot of businesses are being replaced by online stores and video games in which you can create a life without leaving your room but, what do we mention all of this?
  “Sociologists and philosophers have reached a point where we spend more time in front of screens, in front of others and that has disturbing effects we do not normally see”, says Zygmunt Bauman. And I agree because, now, it is very common to see people looking down while walking or get to restaurants and see people face to face with their eyes on their mobile devices without exchanging a word about it.
